@@ -5,4 +5,4 @@
 - Buscando novas aprendizagens através da tecnologia robótica!
 - Gosto de animes! 😃
 
-![](https://media1.tenor.com/m/ejk7sEM53TYAAAAC/skibidi-dog-wtt.gif)
+![](https://media1.tenor.com/m/eOBwhgtS3mwAAAAC/dog-smile.gif)
